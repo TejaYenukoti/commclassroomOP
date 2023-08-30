@@ -1,3 +1,3 @@
 # Community classroomOP
 
-Hello, Have a great life!
+Hello there, Have a great life!

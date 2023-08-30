@@ -1,3 +1,3 @@
 # Community classroomOP
 
-Hi All
+Have a great life!
